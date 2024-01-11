@@ -1,0 +1,2 @@
+# ControlTask7_MQA_Ruben_Zakharyan
+Studing
